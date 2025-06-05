@@ -4,5 +4,4 @@
 * Nasci dia 03/08/2009
 * Gosto de esportes ⚽!
 * Torço para o São Paulo 🔴⚫⚪
-* 
   ![](https://tenor.com/pt-BR/view/cat-gif-25169380)
